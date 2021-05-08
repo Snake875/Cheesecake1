@@ -1,1 +1,1 @@
-# Cheesecake1
+Cheesecake is a sweet dessert consisting of multiple layers. The main layer is a thick mixture of soft, fresh cheese, eggs and sugar. The bottom layer usually consist of a crust or base made from crushed cookies, graham crackers, pastry or even sponge cake. This is an easy cheese cake recipe, which can be made in less than one hour. You can enjoy it with blueberry reduction or just as is. 
